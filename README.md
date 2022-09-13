@@ -1,1 +1,1 @@
-![Sociality io](https://user-images.githubusercontent.com/90451547/189906351-56a7575c-b2b0-4546-b6c4-0b044cbf0740.png)
+![Screenshot 2022-09-13 155300](https://user-images.githubusercontent.com/90451547/189906488-fa07e993-21cd-443c-9ffc-9b8489735b70.png)
